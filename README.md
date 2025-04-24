@@ -75,7 +75,9 @@ This project was built collaboratively by the following members of the Power Lea
 - **Al-mujahid Al-imam** – almujahidalimam@gmail.com  
 - **Mercy Ndungu** – ndungumercyalice@gmail.com  
 - **Lordphick Obwanda** – obwandalordphick14@gmail.com  
-- **Alfonce Kipkemoi Ngetich** – alfoncekngetich@gmail.com  
+- **Alfonce Kipkemoi Ngetich** – alfoncekngetich@gmail.com
+- **matthew	mahlangu** -	matthewsiyabonga@gmail.com  
+  
 
 ---
 
